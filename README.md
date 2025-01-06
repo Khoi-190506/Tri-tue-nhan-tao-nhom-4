@@ -1,1 +1,0 @@
-# Tri-tue-nhan-tao-nhom-4
